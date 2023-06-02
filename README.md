@@ -23,13 +23,26 @@
 
 ![image](https://github.com/mjasper30/HRS/assets/81204548/ffb57e10-728c-459e-9b5c-be4e1bda9ef6)
 
+![image](https://github.com/mjasper30/HRS/assets/81204548/4fde8fb2-2fe9-452c-81aa-47718227fd70)
+
+![image](https://github.com/mjasper30/HRS/assets/81204548/3af65fbb-47f8-4b99-b3a5-46ebd51f97b4)
+
 ![image](https://github.com/mjasper30/HRS/assets/81204548/fecc4a97-db9e-4fcf-865f-fb6f744ebcd2)
 
 ![image](https://github.com/mjasper30/HRS/assets/81204548/f1fdfe89-dfdf-4578-9fe9-2e01690ea1db)
+
+![image](https://github.com/mjasper30/HRS/assets/81204548/b62bd1c2-be90-4682-8dfc-89329c3745c9)
 
 ![image](https://github.com/mjasper30/HRS/assets/81204548/e290b34f-4d69-430e-b079-376ce72c3b3f)
 
 ![image](https://github.com/mjasper30/HRS/assets/81204548/fa968618-54f4-4f35-a12f-906c8bc52388)
 
 ![image](https://github.com/mjasper30/HRS/assets/81204548/2148e6d2-142c-45b6-8217-0c18c9c9aa60)
+
+![image](https://github.com/mjasper30/HRS/assets/81204548/5e90e327-1b6f-45ea-998b-13a648a419f4)
+
+![image](https://github.com/mjasper30/HRS/assets/81204548/193e305b-48d1-4d9b-b50a-c2cb5efc2940)
+
+![image](https://github.com/mjasper30/HRS/assets/81204548/2a36bc61-26e5-48ef-9954-25bdcdc17e15)
+
 
